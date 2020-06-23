@@ -10,3 +10,4 @@ Der Alt-Hippie Jeffrey Lebowski, der sich selbst nur der Dude nennt, schiebt ein
 
 > Tut mir leid, hab' grad nicht zugehört.
 
+<img src="https://www.flickr.com/photos/sleeper-cell/2364378947">
