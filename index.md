@@ -8,3 +8,5 @@ Der Alt-Hippie Jeffrey Lebowski, der sich selbst nur der Dude nennt, schiebt ein
 * hasst Bargeld, bezahlt mit Schecks
 * schätzt Häuslichkeit: hat einen Teppich, der das Zimmer erst richtig gemütlich macht
 
+> Tut mir leid, hab' grad nicht zugehört.
+
